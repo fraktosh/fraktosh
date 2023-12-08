@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @fraktosh
 - 👀 I’m interested in Artificial Intelligence, Machine Learning and Automation Systems
-- 🌱 I’m currently studying in High School
 - 💞️ I’m looking to collaborate on small projects and learning
 - 📫 How to reach me on Instagram: @fraktosh
                      on Twitter: @fraktosh
