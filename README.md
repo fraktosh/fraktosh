@@ -40,6 +40,7 @@
 
 - 💌 Email: [sahasoham814@gmail.com](mailto:sahasoham814@gmail.com)
 - 🤾‍♂️ X: [@fraktosh](https://x.com/fraktosh)
+- 🔗 More: [homepage](https://fraktosh.github.io/)
 
 
 <!---
